@@ -13,3 +13,11 @@
 * Californication
 * How can I go on
 * Death of a Bachelor
+
+
+## Musicas preferidas do Lucas Cogo
+
+* Vai embrazando
+* Open the tcheka
+* O Grave Bater
+* Ou Xanaina

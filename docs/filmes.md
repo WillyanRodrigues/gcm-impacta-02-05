@@ -13,4 +13,12 @@
  * Doutor Estranho
  * Capitão América: Guerra Civil.
  
+ 
+# Filmes preferidos do Lucas Cogo
+
+ * O resgate do soldado Ryan
+ * BrookBack Mountain
+ * Gaiola das Loucas.
+ 
+ 
 
