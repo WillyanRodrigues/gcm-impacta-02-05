@@ -6,6 +6,12 @@
 * The walking dead
 * Prison Break
 
+##Membro 2
+*Prision Break
+*Supernatural
+*Maluco no pedaço
+
+
 ## Casaroto
 
 * Two and Half Man
